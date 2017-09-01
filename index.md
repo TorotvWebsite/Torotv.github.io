@@ -9,8 +9,7 @@ Createit.github.io And Many More Websites!
 For Reviews, My Thoughts,Some School Worksheets,Reviews And Many More!
 The WebsiteIs Hosted Via Html Primanly Via w3schools.com too!
 
-## Scratch Profile
-Find Me On Scratch At @-pride, My Username 
+
                                   ^
                 
                 
